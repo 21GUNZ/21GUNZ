@@ -21,7 +21,7 @@
   </div> <div align="center"> Detroit: Become Human, Dead by Daylight, Hatred, Marvel & DC ...</div>
     </div> <div align="center">► 𝗦𝗼𝗺𝗲 𝗼𝗹𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀: Devil May Cry, Hotline Miami, Hades, IDV... (+ ask)</div> 
     </div> <div align="center">𝗜 𝗹𝗶𝘀𝘁𝗲𝗻 𝘁𝗼: Rammstein, Descendents, Ice Nine Kills, Black Sabbath,</div>
-       </div> <div align="center">My Chemical Romance, Will Wood, Three days Grace,Falling In Reverse,</div>
+       </div> <div align="center">My Chemical Romance, Will Wood, Three days Grace, Falling In Reverse,</div>
      </div> <div align="center">I DON'T KNOW HOW BUT THEY FOUND ME, Waterparks, The Neighbourhood</div>
       </div> <div align="center"> Mötley Crüe, The Doors, R.E.M. , Pearl Jam, Bon Jovi,</div>
        </div> <div align="center"> Hombres G, El Cuarteto de Nos, Ska-P, Lady Gaga, Pitbull, DLH ...</div>
