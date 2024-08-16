@@ -16,6 +16,7 @@
      </div> <div align="center">drama starters, true crime comunity ... </div>
     </div> <div align="center">hoyoverse enjoyers and homestuck fandom are t͟h͟i͟n͟ ice </div>
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
+    ⠀⠀
      </div> <div align="center"> ► 𝗖𝘂𝗿𝗿𝗲𝗻𝘁 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀: Cyberpunk 2077, Resident Evil, greek mythos, </div>
   </div> <div align="center"> Detroit: Become Human, Dead by Daylight, Hatred, Marvel & DC ...</div>
     </div> <div align="center">► 𝗦𝗼𝗺𝗲 𝗼𝗹𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀: Devil May Cry, Hotline Miami, Hades, IDV... (+ ask)</div> 
