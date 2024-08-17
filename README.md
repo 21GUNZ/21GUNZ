@@ -25,7 +25,7 @@
      </div> <div align="center">I DON'T KNOW HOW BUT THEY FOUND ME, Waterparks, The Neighbourhood</div>
       </div> <div align="center"> Mötley Crüe, The Doors, R.E.M. , Pearl Jam, Bon Jovi,</div>
        </div> <div align="center"> Hombres G, El Cuarteto de Nos, Ska-P, Lady Gaga, Pitbull, DLH ...</div>
-        </div> <div align="center"> <a href="https://21gunz.straw.page/">strawpage</a> ☆ <a href="https://rentry.co/21GUNZ">kinlist</a> </div> 
+        </div> <div align="center"> <a href="https://xerosene/">strawpage</a> ☆ <a href="https://rentry.co/21GUNZ">kinlist</a> </div> 
         </div> <div align="center"> <a href="https://retrospring.net/@xerosene">retrospring</a></div>
        </div><div align="center"> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘</div>
        <div align="center">
