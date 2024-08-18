@@ -11,8 +11,8 @@
    </div> <div align="center">┍━━━━━━━━━━━━━━━━━━━━━━━»•» 🐾 «•«━┑</div>
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
     </div> <div align="center"> <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>; HH/HB, DSMP, COD, ranfren and okegom fandom,</div>
-    </div> <div align="center">varg vikernes dickriders or burzum idolaters, reality checkers </div>
-     </div> <div align="center">roleplayers, makes fun of kinning or copying mechanisms </div>
+    </div> <div align="center">varg vikernes dickriders or burzum idolaters, reality checkers, </div>
+     </div> <div align="center">skin stealers, roleplayers, makes fun of kinning or copying mechanisms </div>
      </div> <div align="center">drama starters, true crime comunity ... </div>
     </div> <div align="center">hoyoverse enjoyers and homestuck fandom are t͟h͟i͟n͟ ice </div>
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
