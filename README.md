@@ -12,7 +12,7 @@
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
     </div> <div align="center"> <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>; HH/HB, DSMP, COD, ranfren and okegom fandom,</div>
     </div> <div align="center">varg vikernes dickriders or burzum idolaters, reality checkers, </div>
-     </div> <div align="center">skin stealers, roleplayers, makes fun of kinning or copying mechanisms </div>
+     </div> <div align="center">skin stealers, roleplayers, makes fun of kinning or copying mechanisms, </div>
      </div> <div align="center">drama starters, true crime comunity ... </div>
     </div> <div align="center">hoyoverse enjoyers and homestuck fandom are t͟h͟i͟n͟ ice </div>
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
@@ -22,8 +22,8 @@
     </div> <div align="center">► 𝗦𝗼𝗺𝗲 𝗼𝗹𝗱 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀: Devil May Cry, Hotline Miami, Hades, IDV... (+ ask)</div> 
     </div> <div align="center">𝗜 𝗹𝗶𝘀𝘁𝗲𝗻 𝘁𝗼: Rammstein, Descendents, Ice Nine Kills, Black Sabbath,</div>
        </div> <div align="center">My Chemical Romance, Will Wood, Three days Grace, Falling In Reverse,</div>
-     </div> <div align="center">I DON'T KNOW HOW BUT THEY FOUND ME, Waterparks, The Neighbourhood</div>
-      </div> <div align="center"> Mötley Crüe, The Doors, R.E.M. , Pearl Jam, Bon Jovi,</div>
+     </div> <div align="center">I DON'T KNOW HOW BUT THEY FOUND ME, Waterparks, The Neighbourhood,</div>
+      </div> <div align="center"> Mötley Crüe, The Doors, R.E.M. , Pearl Jam, Bon Jovi, Green Day,</div>
        </div> <div align="center"> Hombres G, El Cuarteto de Nos, Ska-P, Lady Gaga, Pitbull, DLH ...</div>
         </div> <div align="center"> <a href="https://xerosene.straw.page/">strawpage</a> ☆ <a href="https://rentry.co/21GUNZ">kinlist</a> </div> 
         </div> <div align="center"> <a href="https://retrospring.net/@xerosene">retrospring</a></div>
