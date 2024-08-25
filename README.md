@@ -1,7 +1,7 @@
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 </div> <div align="center"> !! you can call me 𝗵𝗲𝗿𝗺𝗲𝘀, frank or b͟i͟r͟kin — <a href="https://en.pronouns.page/@21GUNZ">𝗵</a>e/him </div>
-  </div> <div align="center"> southern s͟p͟a͟niard // eng & esp</div>
+  </div> <div align="center"> s͟p͟a͟niard // eng & esp</div>
     </div> <div align="center"> hellenic paganism</div>
    </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻, don't flirt with me</div>
  </div> <div align="center"> 19 y.o — I have 𝗔𝗗HD, be patient</div>
