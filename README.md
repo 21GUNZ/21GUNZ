@@ -4,7 +4,7 @@
   </div> <div align="center"> s͟p͟a͟niard // eng & esp</div>
     </div> <div align="center"> hellenic paganism</div>
    </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻, don't flirt with me</div>
- </div> <div align="center"> 19 y.o — I have 𝗔𝗗HD, be patient</div>
+ </div> <div align="center"> 19 y.o — I have ADHD, be patient</div>
  </div> <div align="center">I sit at spawn / bakery with my <a href="https://rentry.co/1-800-BIOHAZARD">friends</a> !</div>
   </div> <div align="center"> feel free to interact or sit w/ me</div>
   </div> <div align="center">𖦹.✧˚</div>
