@@ -6,7 +6,7 @@
  </div> <div align="center"> 19 y.o — I have ADHD, be patient</div>
  </div> <div align="center">I sit at spawn / bakery with my <a href="https://rentry.co/1-800-BIOHAZARD">friends</a> !</div>
   </div> <div align="center"> feel free to interact or sit w/ me</div>
-  </div> <div align="center">𖦹.✧˚</div>
+  </div> <div align="center">𖦹.˚</div>
    </div> <div align="center">┍━━━━━━━━━━━━━━━━━━━━━━━»•» 🐾 «•«━┑</div>
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
     </div> <div align="center"> <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>; HH/HB, DSMP, COD, ranfren and okegom fandom,</div>
