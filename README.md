@@ -3,7 +3,7 @@
 </div> <div align="center"> !! you can call me 𝗵𝗲𝗿𝗺𝗲𝘀, frank or b͟i͟r͟kin — <a href="https://en.pronouns.page/@21GUNZ">𝗵</a>e/him </div>
   </div> <div align="center"> s͟p͟a͟niard // eng & esp</div>
    </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻, don't flirt with me</div>
- </div> <div align="center"> 19 y.o — I have ADHD, be patient</div>
+ </div> <div align="center"> 20 y.o — I have ADHD, be patient</div>
  </div> <div align="center">I sit at spawn / bakery with my <a href="https://rentry.co/1-800-BIOHAZARD">friends</a> !</div>
   </div> <div align="center"> feel free to interact or sit w/ me</div>
   </div> <div align="center">𖦹.˚</div>
@@ -11,7 +11,7 @@
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
     </div> <div align="center"> <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>; HH/HB, DSMP, COD, ranfren and okegom fandom,</div>
     </div> <div align="center">varg vikernes dickriders or burzum idolaters, reality checkers, </div>
-     </div> <div align="center">skin stealers, roleplayers, makes fun of kinning or copying mechanisms, </div>
+     </div> <div align="center">skin stealers, roleplayers, makes fun of kinning or coping mechanisms, </div>
      </div> <div align="center">drama starters, true crime comunity ... </div>
     </div> <div align="center">hoyoverse enjoyers and homestuck fandom are t͟h͟i͟n͟ ice </div>
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
