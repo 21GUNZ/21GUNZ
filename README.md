@@ -14,7 +14,7 @@
      </div> <div align="center">skin stealers, roleplayers, makes fun of kinning or coping mechanisms, </div>
      </div> <div align="center">drama starters, true crime comunity ... </div>
     </div> <div align="center"> 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀𝗵𝗶𝗻𝗴, 𝗵𝗼𝘆𝗼𝘃𝗲𝗿𝘀𝗲 𝗲𝗻𝗷𝗼𝘆𝗲𝗿𝘀 𝗮𝗻𝗱 𝗵𝗼𝗺𝗲𝘀𝘁𝘂𝗰𝗸 𝗳𝗮𝗻𝗱𝗼𝗺 !! </div>
-     </div> <div align="center">are t͟h͟i͟n͟ ice </div>
+     </div> <div align="center">𝗮𝗿𝗲 𝘁͟𝗵͟𝗶͟𝗻͟ 𝗶𝗰𝗲 </div>
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
      </div> <div align="center"> you can find my current interests in my </div>
         </div> <div align="center"> <a href="https://21gunz.straw.page/">strawpage</a> & <a href="https://rentry.co/21GUNZ">kinlist</a> </div> 
