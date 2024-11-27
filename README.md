@@ -18,8 +18,7 @@
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
      </div> <div align="center"> you can find my current interests in my </div>
         </div> <div align="center"> <a href="https://21gunz.straw.page/">strawpage</a> & <a href="https://rentry.co/21GUNZ">kinlist</a> </div> 
-	</div> <div align="center">★</a> </div> 
-	</div> <div align="center"><a href="https://21gunz.atabook.org/">atabook</a> </div> 
+	</div> <div align="center"><a href="https://rentry.co/binkiewinky">rentry</a> ★ <a href="https://21gunz.atabook.org/">atabook</a></a> </div> 
        </div><div align="center"> ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏</div>
        <div align="center">
 	<img src="https://i.ibb.co/2SW23Nk/20241127-101237-2.jpg">
