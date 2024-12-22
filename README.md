@@ -21,5 +21,5 @@
 	</div> <div align="center"><a href="https://rentry.co/binkiewinky">rentry</a> ★ <a href="https://21gunz.atabook.org/">atabook</a></a> </div> 
        </div><div align="center"> ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏</div>
        <div align="center">
-	<img src="https://i.ibb.co/2SW23Nk/20241127-101237-2.jpg">
+	<img src="https://i.ibb.co/HhXdKgS/71c1cca9992ddeec2d04b091cb0c0519.jpg">
  
